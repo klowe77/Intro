@@ -14,4 +14,4 @@ Here are some things to know about me:
 * YES!
   * ![Kayak1](https://i2.wp.com/www.cleantechloops.com/wp-content/uploads/2019/10/Eco-friendly-Kayaking.png)
 
-* #I also have two cats that love to sit on my keyboard 🙀
+* I also have two cats that love to sit on my keyboard 🙀
